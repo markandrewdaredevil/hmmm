@@ -1,2 +1,1 @@
-# hmmm
-nigaaaaaaaaa
+this is a good repository
